@@ -1,5 +1,6 @@
   # Hai ! im snuff and or spencer , i luvvv 8:11 !! 
   <img width="736" height="283" alt="download__34_-removebg-preview (1)" src="https://github.com/user-attachments/assets/ba0a43f9-d3f3-4bfd-a663-3a069fb1baee" />
+<img width="400" height="13" alt="tumblr_91de5f0c46eee02a835450e823f14dbd_42ac04e4_400" src="https://github.com/user-attachments/assets/edc285da-4944-4678-ae19-facb66b4093b" />
 
   .. [strawpage](https://snnuffilm.straw.page/) .. 
 
