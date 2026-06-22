@@ -1,9 +1,9 @@
-# Hai ! im snuff and or spencer , i luvvv 8:11 !! 
-<img width="736" height="283" alt="download__34_-removebg-preview (1)" src="https://github.com/user-attachments/assets/ba0a43f9-d3f3-4bfd-a663-3a069fb1baee" />
+  # Hai ! im snuff and or spencer , i luvvv 8:11 !! 
+  <img width="736" height="283" alt="download__34_-removebg-preview (1)" src="https://github.com/user-attachments/assets/ba0a43f9-d3f3-4bfd-a663-3a069fb1baee" />
 
-.. [strawpage](https://snnuffilm.straw.page/) .. 
+  .. [strawpage](https://snnuffilm.straw.page/) .. 
 
-!! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! 
+  !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! 
 
 <!--
 **snnuffilm/snnuffilm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
