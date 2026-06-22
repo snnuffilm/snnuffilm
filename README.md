@@ -5,7 +5,8 @@
 
 
 
-  .. [strawpage](https://snnuffilm.straw.page/) .. 
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1553912c-d361-4949-905a-277b0d1ac836" />
+ .. [strawpage](https://snnuffilm.straw.page/) .. 
 
   !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! <img width="53" height="21" alt="image" src="https://github.com/user-attachments/assets/1b23b69a-3c95-460f-8b9c-9c4b2259c52b" />
 
