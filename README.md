@@ -1,4 +1,6 @@
-.. strawpage in links .. 
+.. [strawpage](https://snnuffilm.straw.page/) .. 
+
+!! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! 
 
 <!--
 **snnuffilm/snnuffilm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
