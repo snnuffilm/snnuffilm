@@ -1,3 +1,5 @@
+##Hai ! im snuff and or spencer , i luvvv 8:11 !! 
+
 .. [strawpage](https://snnuffilm.straw.page/) .. 
 
 !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! 
