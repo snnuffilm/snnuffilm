@@ -13,6 +13,7 @@ basic theme , if u dont want overstimulating strawpage ! ↷
 
   !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! <img width="53" height="21" alt="image" src="https://github.com/user-attachments/assets/1b23b69a-3c95-460f-8b9c-9c4b2259c52b" />
 
+https://camo.githubusercontent.com/8691f14c039b30cadb9ca1d2b27147c2cb5a55b1ac96633bb78f5c6a017d2fec/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d6c796361656e696964616526636f6c6f723d613161306166
 
 <!--
 **snnuffilm/snnuffilm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
