@@ -14,7 +14,7 @@ basic theme , if u dont want overstimulating strawpage ! ↷
   !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! <img width="53" height="21" alt="image" src="https://github.com/user-attachments/assets/1b23b69a-3c95-460f-8b9c-9c4b2259c52b" />
 
 ![](https://komarev.com/ghpvc/?snnuffilm)
-
+![Profile view counter](https://komarev.com/ghpvc/?snnuffilm)
 
 <!--
 **snnuffilm/snnuffilm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
