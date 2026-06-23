@@ -7,6 +7,10 @@
 
 .. [strawpage](https://snnuffilm.straw.page/) .. 
 
+basic theme , if u dont want overstimulating strawpage ! ↷
+
+.. [strawpage](https://phombiee.straw.page/) ..
+
   !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! <img width="53" height="21" alt="image" src="https://github.com/user-attachments/assets/1b23b69a-3c95-460f-8b9c-9c4b2259c52b" />
 
 
