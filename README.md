@@ -15,7 +15,7 @@ basic theme , if u dont want overstimulating strawpage ! ↷
 
 <img width="230" height="40" alt="tumblr_e9a3838930bb259df45e5ef3ac17b1c5_397a0ce0_250" src="https://github.com/user-attachments/assets/fd356438-e80a-45e4-9d49-df382ca68959" />
 
-## [free palestine](https://arab.org/click-to-help/palestine/)
+## [free palestine !!](https://arab.org/click-to-help/palestine/) 
 
 
 
