@@ -13,7 +13,7 @@ basic theme , if u dont want overstimulating strawpage ! ↷
 
   !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! <img width="53" height="21" alt="image" src="https://github.com/user-attachments/assets/1b23b69a-3c95-460f-8b9c-9c4b2259c52b" />
 
-![](https://komarev.com/ghpvc/?snnuffilm)
+https://shields-io-visitor-counter.herokuapp.com/badge?page=octocat.Spoon-Knife
 
 
 <!--
