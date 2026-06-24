@@ -18,4 +18,4 @@ basic theme , if u dont want overstimulating strawpage ! ↷
 ## [free palestine !!](https://arab.org/click-to-help/palestine/) 
 
 
-https://www.last.fm/user/Phombiee
+
