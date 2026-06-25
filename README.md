@@ -16,6 +16,8 @@ basic theme , if u dont want overstimulating strawpage ! ↷
 
   !! craz flash warning for[ ata book !](https://snnufffilm.atabook.org/) !! <img width="53" height="21" alt="image" src="https://github.com/user-attachments/assets/1b23b69a-3c95-460f-8b9c-9c4b2259c52b" />
 
+  my [guns.lol](https://guns.lol/snuffilm) for socials !
+
 <img width="230" height="40" alt="tumblr_e9a3838930bb259df45e5ef3ac17b1c5_397a0ce0_250" src="https://github.com/user-attachments/assets/fd356438-e80a-45e4-9d49-df382ca68959" />
 
 ## [free palestine !!](https://arab.org/click-to-help/palestine/) 
